@@ -60,16 +60,16 @@ Ayat 55:
 Ayat 56
 - Afterwards, they were revived again so that they can be *grateful*.
 
-Ayat 56:
+Ayat 57:
 - Two blessings were provided to Bani Israel in Sinai peninsula:
   - A shade with the help of cloud was provided because there was no shelter
   - Manna and the Quails was provided to them. مَنَّ وَٱلسَّلْوَىٰ
 
-Ayat 57: 
+Ayat 58: 
 - Allah commanded them to go into a town but with humility for which they would have been provided with:
   - Repentance.
   - More favours.
 
-Ayat 58: 
+Ayat 59: 
 - They did the opposite of which was provided to them as a command by Allah.
 - For which, they were fairly dealt with.
