@@ -22,7 +22,7 @@ Ayat 48:
   2. No intercession will be accepted.
   3. No one will be ransomed
   4. No criminal will recieve help.
-Note: I could not understand its link with the current story which is being told.
+- Note: I could not understand its link with the current story which is being told.
 
 Ayat 49:
 - They recieved salvation from Pharaoh (Firoun)
