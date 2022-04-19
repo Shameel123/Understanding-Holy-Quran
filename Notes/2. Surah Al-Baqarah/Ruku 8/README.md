@@ -1,10 +1,20 @@
 
-*Date: 17-04-2022*
+*Date: 18-04-2022*
 **Ayat 62 - 71**
 # Ruku 8
 
 ## Overview
-Topic of Israelites is on-going in this Ruku.
+Topic of Israelites is on-going in this Ruku.\
+
+## General Summary in my own words:
+- Ayat 62 mentions about the criteria of reward which is for Muslims, Christians, Jews, Sabians
+- Ayat 63 mentions about the incident of holding Mount Sinai over the heads of Israelites.
+- Ayat 64 mentions the mercy of Allah SWT
+- Ayat 65 mentions the incident of Israelites being converted to Apes
+- Ayat 66 mentions that afermentioned incident is warning for us.
+- Ayat 67-71 is the "second-half" of the story which is completed in next Ruku.
+  - Note: The story is not narrated in chronological order in order to emphasize two misdeeds equally (as per the explanation of Maarif-ul-Quran)
+## Explanation of Ruku:
 
 Mount Sinai = Koh-e-Toor =  کوہ طور
 
@@ -110,4 +120,4 @@ Ayat 70:
 Ayat 71:
 - Moses answered: “Lo! He says, she is a cow unyoked to plough the earth or to water the tillage, one that has been kept secure, with no blemish on her!” Thereupon they cried out: “Now you have come forth with the information that will direct us aright.”
 - They were now compelete sure of who the cow was.
-- Quran shareef mentions that they did not want to do it.
+- Quran shareef mentions that they did not want to sacrifice the cow.

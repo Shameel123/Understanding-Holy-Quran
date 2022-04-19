@@ -55,7 +55,7 @@ Note: I have read this in Exodus as well for which the link is provided above.
 
 Ayat 55:
 - They said that they do not believe Hazrat Musa AS until they see a proof that Allah SWT provided this guidance to him
-- A thunder struck them and they were killed.
+- A *thunder struck them* and they were killed.
 
 Ayat 56
 - Afterwards, they were revived again so that they can be *grateful*.
