@@ -2,8 +2,6 @@
 ## Ayat: 286
 ## Ruku 40
 
-
-
 ### Person Opinions / Questions:
 
 

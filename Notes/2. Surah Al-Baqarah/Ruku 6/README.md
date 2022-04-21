@@ -9,6 +9,9 @@ This is the story of Hazrat Musa AS and Bani Israel
 - Bible has two testaments available: Old and New
 https://www.biblegateway.com/
 
+Note:
+- The calf here is mentioned in Ruku 11 as an answer to Jews for they were persistent in disbelief because Holy Prophet PBUH was not from Bani Israel.
+
 
 ## Starting the explanation of every Ayah.
 Note: I am currently following Tahfim-ul-Quran from https://quran.com/

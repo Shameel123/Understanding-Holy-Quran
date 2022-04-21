@@ -1,6 +1,6 @@
-*Date: 18-04-2022*
+*Date: 19-04-2022*
 **Ayat 72 - 82**
-# Ruku 8
+# Ruku 9
 
 ## Overview
 Story of Israelites is also mentioned in this Ruku.
