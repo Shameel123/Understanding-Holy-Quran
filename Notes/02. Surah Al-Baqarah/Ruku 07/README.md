@@ -6,13 +6,13 @@ This Ruku consists of only 2 Ayah (First shortest Ruku that I have seen!)
 ## Overview
 The story is being continued from the previous Ruku.
 
-Ayat 59:
+Ayat 60:
 - Hazrat Musa AS prayed to Allah to provide water.
 - Allah commanded Hazrat Musa, "Strike the rock with your staff."
 - Twelve springs came out of Earth for each clan/tribe.
 - Hazrat Yaqub (Jacob) AS had 12 sons and each tribe came from each of the son.
 
-Ayat 60:
+Ayat 61:
 - Israelites grew tired of the Mann and the Salwa.
 - They wished for ordinary food.
 - Hazrat Musa AS warned/asked them if they are planning to leave better thing for an inferior thing?
