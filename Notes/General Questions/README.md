@@ -12,3 +12,9 @@
    - Does this incident when the Israelites were made to "Apes" relate to us? 
    - Because they transgessed the command to worship and rest on Staruday relate to us in a manner that we should not work "during" Friday prayer i.e., 
      - We must halt our work when first call of Friday prayer has been made. 
+
+
+
+Ayat 110:
+Related to Zakat:
+ One more general question that came to my mind, why aren't the instructions for spending "Ilm" Knowledge has been made? Why only the cash? Even though both are the types of blessings from Allah SWT but the Zakah is just for the "Maal". I will try to find answers to this but first I have to understand if it is an appropriate question to ponder over or not.
