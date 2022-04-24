@@ -1,7 +1,7 @@
 
 *Date: 24-04-2022*
 **Ayat 104 - 112**
-# Ruku 11
+# Ruku 13
 
 ## Overview
 
