@@ -83,7 +83,7 @@ Ayat 108:
     - Hostility to the Holy Prophet ﷺ had become so habitual to the Jews that they were always making insolent demands. 
     - Once they asked him to bring before them whole of the Qur'an all at once just as the Torah had been revealed.
 - `And whoever exchanges faith for unbelief has surely strayed from the Right Way.`
-  - Does this mean that people who demand such things from Holy Prophet PBUG are exachanging fath for unbelief?
+  - Does this mean that people who demand such things from Holy Prophet PBUH are exachanging fath for unbelief?
 
 
 Ayat 109:
