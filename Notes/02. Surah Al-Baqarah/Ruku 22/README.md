@@ -3,6 +3,10 @@
 # Ruku 22
 
 ## Overview
+The Ruku begins a new phase!
+It starts with the beliefs that we as Muslims must 
+It talks about *Qisaas* (Retribution) and *Wasiyah* (Will)
+I just noticed that both the events are implemented after one has died. A perfect co-relation with the topics? 
 
 Maarif-ul-Quran:
 From the beginning to this point, the Sarah al-Baqarah is reaching its half-way mark. Until now, the message was addressed mostly to its deniers since the truth of the Holy Qur'an was the first thing to be established. In that context, mention was made of those who accepted it and those who rejected it, which was followed by providing proof of Allah's Oneness and the Prophethood. Then, recounted were Allah's blessings and favours on the progeny of Ibrahim (علیہ السلام) right through the verse وَإِذِ ابْتَلَىٰ إِبْرَ‌اهِيمَ رَ‌بُّهُ (2:124). Thenceforth started the issue of the Qiblah قبلہ which continued until it was resolved when the status of Safa صفاء and Marwah مروہ was identified as a sign from Allah (Verse 158).
