@@ -3,7 +3,7 @@
 # Ruku 25
 
 ## Overview
-It continues with Hajj Topic
+It continues with Hajj Topic and changes the topic in the middle of the Ruku to the two different types of people and how they act
 
 
 Ayat 197:
