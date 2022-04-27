@@ -1,6 +1,6 @@
-*Date: 26-04-2022*
+*Date: 27-04-2022*
 **Ayat 211 - 216**
-# Ruku 25
+# Ruku 26
 
 ## Overview
 
