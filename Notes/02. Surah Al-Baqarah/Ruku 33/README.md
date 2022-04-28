@@ -4,7 +4,7 @@
 
 ## Juzz 3 Begins at the last Ayah of this Ruku
 
-## Chronogical Order So Far That I have Been Able To Compile In Relation With Hazrat Moses AS and Bani Israel:
+**Chronogical Order So Far That I have Been Able To Compile In Relation With Hazrat Moses AS and Bani Israel:**
 - Hazrat Moosa (Moses) and Hazrat Haroon AS (Aaron)
 - Hazrat Samuel (Shammil) AS (name not mentioned in previous Ruku)
 - Hazrat Talut (Saul) AS
