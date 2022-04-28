@@ -1,6 +1,6 @@
 *Date: 28-04-2022*
 **Ayat 254 - 257**
-# Ruku 33
+# Ruku 34
 
 ## Overview
 This Ruku contains **Ayat-Al-Kursi** in its second Ayah i.e., Ayah 255.
