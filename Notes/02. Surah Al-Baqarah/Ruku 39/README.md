@@ -1,6 +1,6 @@
 *Date: 30-04-2022*
 **Ayat 282 - 283**
-# Ruku 38
+# Ruku 39
 
 This is the second Ruku I have witnessed in Surah Al-Baqarah consisting of 2 Ayah only!
 Previously Allah taught us Sadqah, then Allah taught us the horrors of interest and now Allah is teaching us how the buyers and sellers should behave in terms of transactions!
