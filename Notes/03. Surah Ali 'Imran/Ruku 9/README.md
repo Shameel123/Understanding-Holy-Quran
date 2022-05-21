@@ -1,6 +1,6 @@
 *Date: 20-05-2022*
 **Ayat 81 - 91**
-# Ruku 8
+# Ruku 9
 
 
 ## Ayat 81
