@@ -1,4 +1,4 @@
-*Date: 20-05-2022*
+*Date: 21-05-2022*
 **Ayat 92 - 101**
 # Ruku 10
 
@@ -104,5 +104,5 @@ This appears to me to be a very strong sign for us... Because of our ego, we mig
 
 
 ## Ayat 101
-- `How can you disbelieve when you are the ones to whom the signs of Allah are recited and amidst you is His Messenger?`
+- `How can you disbelieve when you are the ones to whom the signs of Allah are recited and amidst you is His Messenger?
 - **`Whoever holds fast to Allah will certainly be guided to the straight way.`**
