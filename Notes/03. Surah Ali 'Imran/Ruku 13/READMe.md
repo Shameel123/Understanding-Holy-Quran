@@ -1,6 +1,6 @@
 *Date: 26-05-2022*
 **Ayat 121 - 129**
-# Ruku 12
+# Ruku 13
 
 ## Overview
 
