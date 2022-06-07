@@ -3,7 +3,7 @@
 # Ruku 16
 
 
-## Ayat 144
+## Ayat 149
 
 - `Believers!`
 - `If you follow those who deny the Truth, they will drive you back on your heels,`
