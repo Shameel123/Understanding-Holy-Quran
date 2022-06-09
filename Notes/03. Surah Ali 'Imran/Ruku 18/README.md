@@ -1,6 +1,6 @@
 *Date: 08-06-2022*
 **Ayat 172 - 180**
-# Ruku 19
+# Ruku 18
 
 ## Ayat 172
 - `There were those who responded to the call of Allah and the Messenger`
