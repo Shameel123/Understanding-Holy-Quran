@@ -96,7 +96,5 @@
 - **`To Allah belongs the dominion of the heavens and the earth;`**
 - **`and Allah is All-Powerful. indeed been successful.`**
 
-یقیناً آسمانوں اور زمین کی تخلیق میں اور رات اور دن کے الٹ پھیر میں ہوش مند لوگوں کے لیے نشانیاں ہیں
-
 
 
