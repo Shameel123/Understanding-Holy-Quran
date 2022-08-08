@@ -1,0 +1,216 @@
+*Date: 14-06-2022*
+**Ayat 01 - 05**
+
+
+## Ayat 01
+- `Believers!`
+- `Honour your bonds!`
+  - Tahfim-ul-Quran:
+    - People should abide by the limitations and prohibitions laid down in this surah and elsewhere in the law of God.
+    - This brief introductory statement is followed by an enunciation of those prohibitions which people are required to observe.
+- `All grazing beasts of the flock`
+  - Tahfim-ul-Quran:
+    - The Arabic word an'am (cattle) denotes camels, oxen, sheep and goats, whereas the word bahimah means all grazing quadrupeds.
+    - Had God said that an'am had been made lawful for them, this permission would have included only those animals to which the term an'am is applicable.
+    - But the terms in which the injunction is conveyed are bahimat al-an'am (all grazing beasts of the flock).
+    - Hence the permission is of wider import and embraces all grazing quadrupeds of the cattle type, i.e. which do not possess canine teeth, which feed on plants rather than animals, and which resemble the cattle found in Arabia in other characteristics.
+    - **This implies that the flesh of those animals which have canine teeth and are carnivorous is not permissible.**
+    - **This implication was elucidated by the Prophet (peace be on him) and is embodied in a tradition in which he prohibited those beasts which kill and eat other animals.**
+    - **Likewise, the Prophet (peace be on him) also prohibited birds with claws and those that feed on carrion.**
+    - **According to a tradition transmitted by Ibn 'Abbas: "The Messenger of Allah (peace be on him) prohibited all beasts with canine teeth and all birds with claws.'**
+      - (Bukhari, 'Dhaba'ih', 28, 29; 'Tibb', 53; Abu Da'ud, 'At'imah', 32; Tirmidhi, 'At'imah', 9, 11; Muslim, 'Sayd', 11-16; Nasa'i, 'Sayd wa Dhaba'ih', 28, 30, 33; Ibn Majah, 'Sayd', 13; etc. - Ed.)
+- `are permitted to you except those which are recited to you hereinafter,`
+- `but you are not allowed to hunt in the state of Ihram (a state of pilgrim sanctity).`
+  - Tahfim-ul-Quran:
+    - Ihram is the name of the simple apparel worn at the time of Pilgrimage.
+    - In every direction around the Ka'bah, there are certain fixed points beyond which no Pilgrim may proceed without donning this special Pilgrim's garment in place of his normal clothes.
+    - This apparel consists of two sheets of untailored cloth, one of which is wrapped around the lower part of the body while the other is thrown over the upper part.
+    - This manner of dressing is termed ihram because once a man has assumed it he must treat as prohibited a number of things which are ordinarily lawful, for example either shaving or trimming the hair, or using perfumes and other items of toiletry and the gratification of sexual desires.
+    - These restrictions also extend to both killing and hunting, and to leading anyone else to either kill or hunt an animal.
+- **`Indeed Allah decrees as He wills.`**
+  - Tahfim-ul-Quran:
+    - God is the absolute sovereign and has absolute authority to issue whatever command He might will.
+    - His creatures do not have the right to complain about any of these orders.
+    - Even though wisdom (hikmah) underlies the ordinances of God, a true believer does not obey them because he considers them either appropriate or conducive to his best interests.
+    - **He obeys them simply because they are the ordinances of his Lord.**
+    - He holds unlawful all that God has declared unlawful, because God has so decreed it; whatever He has declared lawful is regarded as such for no other reason than that God, the Lord of all, has allowed His servants the use of it.
+    - Hence the Qur'an establishes very firmly the principle that nothing except permission from the Lord - or lack of it - is to be taken into consideration in deciding what is lawful and what is not.
+
+## Ayat 02
+- `Believers!`
+- `Neither desecrate the symbols of (devotion to) Allah,`
+  - Tahfim-ul-Quran:
+    - Whatever characteristically represents either a particular doctrine, creed, way of thought or conduct is recognized as its symbol.
+    - For example, official flags, uniforms of the armed forces, coins, notes and stamps are symbols used by governments so that their subjects - in fact all those who live within their sphere of influence - treat them with proper respect.
+    - Cathedrals, altars and crosses are symbols of Christianity.
+    - A special bunch of hair on the head, a special kind of bead-rosary and the temple are symbols of Hinduism.
+    - A turban, bracelet and Kirpan (a special dagger kept by the Sikhs) are symbols of the Sikh religion.
+    - The hammer and sickle are the symbols of Communism.
+    - The swastika has been the symbol of Aryan racialism.
+    - The followers of these ideologies are required to treat these symbols with respect.
+    - If a man insults any symbol associated with a particular ideology it is regarded as an act of hostility; and if the person concerned is himself a follower of that ideology then that insult is considered tantamount to an abandonment of, and a revolt against it.
+    - The expression `'sha'a'ir Allah'` refers to all those rites which, in opposition to polytheism and outright disbelief and atheism, are the characteristic symbols of an exclusive devotion to God.
+    - Muslims are required to respect these symbols, regardless of the people among whom they are found, provided their underlying spirit is one of godliness and that they have not been tainted by either polytheistic or pagan associations.
+    - Hence, whenever a Muslim encounters something in either the creed or practice of a non-Muslim, which embodies any element of devotion and service to the One True God, he will identify himself with it and show respect to the symbols which represent it.
+    - For this true element in their religious life constitutes the point of agreement between them and the Muslims.
+    - **The point of dispute is not that they serve God, but that they associate others in that service.**
+    - It should be recalled that this directive to treat the symbols of God with due respect was given at a time when a state of belligerency existed between the Muslims and the polytheists of Arabia, and Makka was under the occupation of the latter.
+    - Polytheistic tribes from all over Arabia used to visit the Ka'bah for Pilgrimage, and the routes of many of these tribes were within the reach-of the Muslims if they decided to attack. It was in such circumstances that the Muslims were told that, even though those people were polytheists, they should not be molested if they were proceeding towards the 'House of God'; that they should not be attacked during the months of Pilgrimage; and that the animals which they were carrying for sacrificial offering should not be touched.
+    - The element of godliness which persisted in their otherwise distorted religious life deserved to be respected.
+- `nor the holy month,`
+- `nor the animals of offering,`
+- `nor the animals wearing collars indicating they are for sacrifice,`
+- `nor ill-treat those who have set out for the Holy House seeking from their Lord His bounty and good pleasure.`
+  - Tahfim-ul-Quran:
+    - Following a general directive that the symbols of God should be treated with proper respect a few such symbols are mentioned specifically lest war fever lead even to the desecration of religious rites and symbols.
+    - The enumeration of these particular symbols does not mean that respect is due to these alone.
+- `But once you are free from Pilgrimage obligations, you are free to hunt.`
+  - Tahim-ul-Quran:
+    - Ihram is also one of the symbols of God and violation of any of the prohibitions which should be observed in that state is an act of sacrilege.
+    - The prohibition of hunting while in the state of ihram is mentioned in connection with the desecration of the symbols of God. When ihram is over, the prohibitions become void, and one is permitted to hunt.
+- `Do not let your wrath against the people who have barred you from the Holy Mosque move you to commit undue transgressions;`
+  - Tahfim-ul-Quran:
+    - The unbelievers had prevented the Muslims from visiting the Ka'bah.
+    - In fact, in violation of the ancient usage of Arabia they had even deprived them of their right to make Pilgrimage.
+    - As a result, the Muslims felt inclined to prevent the pagan tribes from making their pilgrimage by not letting them pass along the routes to Makka which lay close to the Islamic domains, and to attack their trading caravans during the time of Pilgrimage (Hajj).
+    - God prevented them from carrying out this plan through the revelation.
+- `rather, help one another in acts of righteousness and piety,`
+- `and do not help one another in sin and transgression.`
+- **`Fear Allah.`**
+- **`Surely Allah is severe in retribution.`**
+
+
+## Ayat 03
+
+- `Forbidden to you are carrion,`
+  - Tahfim-ul-Quran:
+    - 'Carrion' signifies the animal which has died a natural death.
+- `blood,`
+- `the flesh of swine,`
+- `the animal slaughtered in any name other than Allah's,`
+  - Tahfim-ul-Quran:
+    - This refers to the practice of pronouncing the name of anyone or anything other than God and dedicating the animal, as an offering, to either a holy personage, god or goddess before slaughtering. (For details see Towards Understanding the Qur'an, vol. I, (Surah 2, n. 171.)
+- `the animal which has either been strangled,`
+- `killed by blows,`
+- `has died of a fall,`
+- `by goring`
+- `or that devoured by a beast of prey`
+- **`- unless it be that which you yourselves might have slaughtered while it was still alive`**
+  - Tahfim-ul-Quran:
+    - It is lawful to eat the flesh of an animal which may have suffered from any of the above-mentioned accidents providing it was still alive until slaughtered.
+    - **This verse also makes it clear that the flesh of an animal becomes lawful only by slaughtering ritually, and that no other method of killing is valid.**
+    - The words dhabh and dhakah belong to the technical terminology of Islam and denote slitting the throat so that the blood is completely drained from the animal's body.
+    - The disadvantage of killing an animal by either guillotine or strangulation is that the greater part of the blood remains within the body, and at various places it sticks to the flesh and forms congealed lumps.
+    - If an animal is slaughtered by slitting the throat, on the other hand, the connection between mind and body remains intact for a short while, with the result that the blood is thoroughly drained out from all the veins and the flesh becomes fully cleansed of blood.
+    - **We have just come across the injunction prohibiting the eating of blood. So only that flesh which has been purged of blood is declared lawful.**
+- `- and that which was slaughtered at the altars.`
+  - Tahfim-ul-Quran:
+    - The word nusub signifies all the places consecrated for offerings to others than the One True God, regardless of whether they are images of wood, stone or something else.
+    - The division of objects of eating and drinking into lawful and unlawful is based on their moral rather than their medicinal properties.
+    - God has left matters relating to the physical world to be tackled by man's own effort and striving.
+    - It is for man himself to discover by his own efforts which items of food and drink provide him with healthy nourishment and which are useless and harmful.
+    - The Law (Shari'ah) does not take upon itself to guide man in such matters.
+    - Had it undertaken such a task, perhaps one of the first things for it to do would have been to pronounce the prohibition of arsenic oxide.
+    - But one will notice that the Qur'an and Hadith mention neither arsenic oxide nor other things which either singly or jointly are fatal for man.
+    - The underlying considerations of the Law with regard to the various items of eating and drinking are their possible effects on man's morals and on the purity of his soul.
+    - This is in addition to the judgements that the Law makes with regard to the various means adopted by man in his quest for food - whether they are appropriate according to Islamic standards or not.
+    - It is impossible for man to determine what is beneficial and what is harmful for his morals; he has not been endowed with the capacities needed to arrive at sound conclusions on these matters, and so he frequently stumbles into error. Hence the Law undertakes to guide him in these matters and these matters alone.
+    - **Whatever has been prohibited by Islam has been prohibited because of its bad effects on human morals, because of its repugnance to spiritual purity, and because of its association with false beliefs.**
+    - Things which have been declared lawful have been so declared because they are untainted by these evils.
+    - It may be asked why God did not specify the considerations underlying the prohibition of various things for this would have afforded us very valuable insights.
+      - In reply, it must be pointed out that it is impossible for us to fully grasp such considerations. The kind of questions we face are for instance: What are the corrupting effects of the consumption of either blood or the flesh of swine and carrion on our morals? The extent to which this corruption affects our morals, and the way in which certain things affect our morals is a matter that we are incapable of investigating, for we do not possess the means of weighing and measuring the moral properties of various things. To mention some of these bad effects would carry little weight with the sceptic, for how could he test the soundness of statements on such questions? Hence, God considers faith rather than man's own judgement as the main basis for observing the standards of lawfulness and prohibition.
+    - Whoever is fully convinced that the Qur'an is the Book of God, that the Prophet (peace be on him) was designated by Him, and that God is All-Knowing and All-Wise, will necessarily commit himself to observe the restrictions enjoined by God regardless of whether he is able to grasp the wisdom underlying them or not.
+    - Whoever lacks this basic conviction will avoid only those evils which are fully evident to human beings, and will remain a prey to all those which have not yet become apparent but which in fact are intrinsically harmful.
+- `You are also forbidden to seek knowledge of your fate by divining arrows.`
+  - Tahfim-ul-Quran:
+    - The things which are prohibited in this verse fall into the following categories:
+      1. Polytheistic divination, which is a form of omen-seeking whereby knowledge either about one's future or about matters beyond human perception, is sought from gods and goddesses. The polytheists of Makka had consecrated the idol Hubal in the Ka'bah for this purpose. Seven arrows had been placed at its altars and on each of them different words and sentences had been inscribed. Whenever people were faced with the question whether a certain course was wise or not, or they wanted to trace something lost, or sought a judgement in a murder case, or had other similar problems, they would approach the oracle of Hubal, present him with an offering as his fee, and pray to Hubal to issue a verdict on the question concerned. Then the oracle would draw arrows, and the inscription on the arrow which fell to a person's lot was deemed to represent the verdict of Hubal.
+      2. Superstitious divination, which has also been prohibited, means that instead of deciding the problems of life in a rational way one should decide them on fanciful grounds. Or it could mean deciding matters by arbitrary interpretation of accidental events, or to have one's future prophesied by means which have not been reasonably established as adequate for obtaining knowledge about the future. This includes geomancy, astrology, fortune-telling and the numerous other methods adopted to determine omens.
+      3. Games of chance are also prohibited and include all those transactions in which what one receives depends on chance and other purely accidental factors rather than on rational considerations such as either due payment or recompense for services rendered. This applies, for instance, to lotteries where the holder of an arbitrarily-drawn number receives a huge amount of money which has been obtained from thousands of other people. It also applies to crossword puzzles were the award of prizes does not depend on the actual correctness of the solution (since several correct solutions are possible) but on accidental conformity with the particular solution which is arbitrarily chosen as the only correct one by the sponsors of the puzzle.
+    - After prohibiting each of these three categories, the only kind of lot-drawing which Islam permits is that which one resorts to when obliged to make a decision either in favour of one of numerous permissible options or in favour of one out of two or more equally legitimate claimants.
+      - For instance, two persons have an equal claim over a thing which neither of them is prepared to relinquish, and at the same time there is no reasonable basis for preferring one to the other.
+      - In such a case, with the consent of the claimants, the matter may be settled by drawing lots.
+      - **The Prophet (peace be on him) himself used to resort to drawing lots when he had to make a decision between two equal claimants, and when preferring one of them would cause distress and grievance to the other.**
+        - (For such instances see Ahmad b. Hanbal, Musnad, vol. 4, p. 373; Bukhari, 'Nikah', 97 and 'Shahadat', 30; Muslim, 'Fada'il al-Sahabah', 88; Ibn Majah, 'Ahkam', 20, etc. - Ed.)
+- `All these are sinful acts.`
+- `This day the unbelievers have fully despaired of your religion.`
+  - Tahfim-ul-Quran:
+    - 'This day', here, does not signify a particular day or specific date. It refers to that period of time when these verses were revealed. 
+    - In our own usage, too, expressions like 'today' or 'this day' often have the sense of the 'present time'. `'This day the unbelievers have fully despaired of your religion'` refers to the fact that the Muslims' religion had developed into a full-fledged system of life, reinforced by the authority and governmental power which it had acquired. The unbelievers who had hitherto resisted its establishment now despaired of destroying Islam and of forcing the believers back to their former state of Ignorance. 
+    - The believers therefore no longer needed to fear men: they should fear God alone instead. Indeed, the Muslims were repeatedly asked to fear God, for they would not be treated lightly if they failed to carry out His commands, especially as there was no longer any justifiable excuse for such failure. If they still violated the law of God, there could be no basis for supposing that they did so under constraint: it must mean that they simply had no intention of obeying Him.
+- **`Do not fear them; but fear Me.`**
+- `This day I have perfected for you your religion, and have bestowed upon you My bounty in full measure, and have been pleased to assign for you Islam as your religion. (Follow, then, the lawful and unlawful bounds enjoined upon you.)`
+  - Tahfim-ul-Quran:
+    - The 'perfection of religion' mentioned in this verse refers to making it a self-sufficient system of belief and conduct, and an order of social life providing its own answers to the questions with which man is confronted.
+    - This system contains all necessary guidance for man, either by expounding fundamental principles from which detailed directives can be deduced or by spelling out such directives explicitly so that in no circumstances would one need to look for guidance to any extraneous source.
+    - The bounty referred to in the statement: `'I have bestowed upon you My bounty in full measure'`, is the bounty of true guidance. The statement: `'I have been pleased to assign for you Islam as your religion'` means that, since the Muslims had proved by their conduct and their striving that they were honest and sincere about the commitment they had made to God in embracing Islam - the commitment to serve and obey Him - He had accepted their sincerity and created conditions in which they were no longer yoked in bondage to anyone but Him.
+    - Thus the Muslims were not prevented from living in submission to God out of extraneous constraints just as there were no constraints preventing them from subscribing to true beliefs. 
+    - Having recounted these favours, God does not point out what should be the proper response to those favours. But the implication is obvious: the only appropriate response on the part of the believers must be unstinting observance of the law of God out of gratitude to Him.
+    - According to authentic traditions **this verse was revealed in 10 A.H. on the occasion of the Prophet's Farewell Pilgrimage.** The context however, seems to indicate that **it was revealed soon after the conclusion of the Treaty of Hudaybiyah** (i.e. in 6 A.H.).
+      - All parts of the discourse in which this verse occurs are so tightly interwoven and so closely inter-connected that it hardly seems conceivable that it should have been inserted here several years later. My own estimate - and true knowledge of this lies with God alone - is that this verse was originally revealed in its present context (i.e. commenting upon the conditions prevailing at the time of the Treaty of Hudaybiyah). It is conceivable that the true significance of the verse was not then fully appreciated. But later on, when Islam prevailed over the whole of Arabia and the power of Islam reached a high point, God once again revealed this sentence to His Messenger and ordered him to proclaim it.
+- `As for he who is driven by hunger, without being wilfully inclined to sin,`
+- **`surely Allah is All-Forgiving, All-Compassionate.`**
+
+
+## Ayat 04
+- `They ask you what has been made lawful to them.`
+- `Say:`
+- `'All clean things have been made lawful to you,`
+  - Tahfim-ul-Quran:
+  - There is a certain subtlety in how the query is answered. 
+  - Religious- minded people often fall into a prohibitionist mentality by tending to regard as unlawful everything not expressly declared as lawful.
+  - This makes them excessively fastidious and over-suspicious, and inclined to ask for a complete list of all that is lawful and permitted.
+  - The Qur'an's response to this question seems to be aimed, in the first place, at the reform of this mentality.
+  - The questioners want a list of what is lawful so they can treat everything else as prohibited, but the Qur'an provides them with a list of what is prohibited and then leaves them with the guiding principle that all 'clean things' are lawful.
+  - **This means a complete reversal of the old religious outlook according to which everything that has not been declared lawful is considered prohibited.**
+  - This was a great reform, and it liberated human life from many unnecessary constraints. Henceforth, except for a few prohibitions, **the lawful domain embraced virtually everything**.
+  - The lawfulness of things has been tied, however, to the **stipulation of their being clean** so that no one can argue for the lawfulness of things which are unclean.
+  - The question which arises at this point is: How are we to determine which things are clean? The answer is that everything is clean apart from those things which can be reckoned unclean either according to any of the principles embodied in the Law or which are repellent to man's innate sense of good taste or which civilized human beings have generally found offensive to their natural feelings of cleanliness and decency.
+- `and such hunting animals as you teach,`
+- `training them to hunt,`
+- `teaching them the knowledge Allah has given you - you may eat what they catch for you`
+  - Tahfim-ul-Quran:
+    - The expression 'hunting animals' signifies hounds, cheetahs, hawks and all those beasts and birds which men use in hunting. 
+    - It is a characteristic of animals which have been trained to hunt that they hold the prey for their masters rather than devour it.
+    - It is for this reason that while the catch of these trained animals is lawful, that of others is prohibited.
+    - There is some disagreement among the jurists as to the hunting animals whose catch is lawful.
+    - Some jurists are of the opinion that if the hunting animal, whether bird or beast, eats any part of the game, it becomes prohibited since the act of eating signifies that the animal hunted for its own sake rather than for the sake of its master. This is the doctrine of Shafi'i.
+    - Other jurists hold that the prey is not rendered unlawful even if the hunting animal has eaten part of the game; even if it has devoured one-third of the animal, the consumption of the remaining two-thirds is lawful, irrespective of whether the hunting animal is a bird or a beast. This is the view of Malik. 
+    - A third group of jurists is of the opinion that if the hunting animal which has eaten part of the game is a beast it becomes prohibited, but not so if the hunting animal is a bird. The reason for this distinction is that hunting beasts can be trained to hold the game for their master whereas experience shows that hunting birds are not fully capable of receiving such instruction. This is the opinion of Abu Hanifah and his disciples.
+    - 'Ali, however, is of the opinion that it is unlawful to eat the catch of hunting birds because they cannot be trained to refrain from eating the game and to hold it merely for the sake of their master. 
+    - (See the commentaries of Ibn Kathir, Jassas, Ibn al-'Arabi and Qurtubi on this verse. See also Ibn Rushd, Bidayat al-Mujtahid, vol. 2, pp. 440 ff. -Ed.)
+- `- but invoke the name of Allah on it.`
+  - Tahfim-ul-Quran:
+    - They should pronounce the name of God at the time of dispatching animals to the hunt.
+    - **It is mentioned in a tradition that 'Adi b. Hatim asked the Prophet (peace be on him) whether he could use hounds for hunting. The Prophet (peace be on him) replied: 'If you have pronounced the name of God while dispatching your trained hound, eat what he has caught for, you. And if it has eaten from the game, then do not eat for I fear that the hound had caught the game for itself.'**
+    - **Then he inquired what should be done if one had pronounced the name of God while dispatching one's own hound, but later found another hound close to the prey. The Prophet (peace be on him) replied: 'Do not eat that, for you have pronounced the name of God on your own hound, but not on the other one.'** (For relevant traditions see Bukhari, 'Dhaba'ih', 4, 10; Ibn Majah, 'Sayd', 3; Ahmad b. Hanbal, Musnad, vol. 1, p. 231 and vol. 4, p. 195 - Ed.)
+    - The verse under discussion makes it clear that it is necessary to pronounce the name of God while dispatching a hound to the hunt. If a man later finds the prey alive he should slaughter it. But if he does not find it alive it will still be lawful to eat it since the name of God has already been pronounced.
+    - The same rule applies with regard to shooting arrows in hunting.
+- `Have fear of Allah (in violating His Law). Allah is swift in His reckoning.'`
+
+## Ayat 05
+- `This day all good things have been made lawful to you.`
+- `The food of the People of the Book is permitted to you, and your food is permitted to them.`
+  - Tahfim-ul-Quran:
+    - The food of the People of the Book includes the animals slaughtered by them.
+    - The rule that 'our food is lawful to them and theirs lawful to us' signifies that there need be no barriers between us and the People of the Book regarding food.
+    - We may eat with them and they with us.
+    - But this general proclamation of permission is preceded by a reiteration of the statement: 'All good things have been made lawful to you.' This indicates that if the People of the Book either do not observe those principles of cleanliness and purity which are considered obligatory by the Law or if their food includes prohibited items, then one should abstain from eating them.
+    - If, for instance, they either slaughter an animal without pronouncing the name of God or if they slaughter it in the name of anyone else but God it is not lawful for us to eat that animal.
+    - Likewise, if intoxicating drinks, the flesh of swine, and any other prohibited thing is found on their dining table we may not justify our partaking of such items on the ground that the persons concerned are People of the Book.
+    - The same applies to those non-Muslims who are not People of the Book, except for one difference - that whereas the animals slaughtered by the People of the Book are lawful provided they have pronounced the name of God at the time of slaughtering them, we are not permitted to eat the animals killed by non-Muslims who are not People of the Book.
+- `And permitted to you are chaste women, be they either from among the believers or from among those who have received the Book before you,`
+  - Tahfim-ul-Quran:
+    - This expression signifies the Jews and the Christians.
+    - Of non-Muslim women, Muslims may marry only Christians and Jews, and of them only those who have been characterized as muhsanat (i.e. 'well-protected women').
+    - There are differences among jurists as to the detailed application of this rule.
+    - The view of Ibn 'Abbas is that the expression 'People of the Book' here signifies only those People of the Book who are subjects of the Domain of Islam (Dar al-Islam).
+    - It is also unlawful to marry Jewish and Christian women who are either living in the Domain of War (Dar al-Harb) or in the Domain of Disbelief (Dar al-Kufr).
+    - The Hanafi jurists hold a slightly different opinion. Although they disapprove of marrying such women, it is not considered unlawful. Sa'id b. al-Musayyib and Hasan al-Basri are of the opinion that the verse warrants general application and hence there is no need to differentiate between those who are ahl al-Dhimmah (the non-Muslim subjects of the Islamic State) and those who are not. There is also disagreement among the jurists about the connotation of the term muhsanat. 'Umar considered this word to signify only those women who are chaste and possess good moral character, and hence ahl al-Kitab women who are of loose character are excluded from this permission. This is also the opinion of Hasan al-Basri, Sha'bi and Ibrahim al-Nakha'i and of the Hanafi jurists. But Shafi'i considers this expression to have been used as an antonym of 'slave women', and hence it signifies all those ahl al-Kitab women who are not slaves. 
+      - (Cf. the commentaries of Ibn Kathir, Ibn al-'Arabi and Qurtubi - Ed.)
+- `provided you become their protectors in wedlock after paying them their bridal-due, rather than go around committing fornication and taking them as secret-companions.`
+- `The work of he who refuses to follow the way of faith will go waste, and he will be among the utter losers in the Hereafter.`
+  - Tahfim-ul-Quran:
+    - The declaration that marriage to ahl al-Kitab women is permitted is immediately followed by this warning which, in effect, means that those who avail themselves of this permission ought to be mindful of their faith and morals.
+    - They are urged to beware of infatuation with disbelieving women lest they also become enamoured of the ideas and beliefs which they cherish, thereby allowing their faith to dissipate. 
+    - They are warned against adopting social patterns and modes of conduct inconsistent with the true requirements of their faith.
