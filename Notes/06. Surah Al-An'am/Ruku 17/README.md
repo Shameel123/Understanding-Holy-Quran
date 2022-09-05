@@ -1,4 +1,4 @@
-*Date: 03-09-2022*
+*Date: 04-09-2022*
 **Ayat 141 - 144**
 
 ## Ayat 141
@@ -48,4 +48,5 @@
 Tahfim-ul-Quran:
   - Questions as to whether the male offspring is lawful and the female is unlawful are presented in some detail to show how unreasonable their superstitions are.
   - That the male offspring of an animal should be considered lawful for eating while the female be prohibited, or vice versa;
-  - and that an animal should itself be considered lawful, but not its offspring, is so manifestly unreasonable that common sense simply refuses to accept it, and no intelligent man can ever conceive such absurdities to have been sanctioned by God. Just as the superstitions in vogue among the Arabs were absurd, as the Qur'an stresses, likewise many other nations of the world follow even now irrational dietary restrictions, and believe that food and drink become polluted merely by the touch of some other people.
+  - and that an animal should itself be considered lawful, but not its offspring, is so manifestly unreasonable that common sense simply refuses to accept it, and no intelligent man can ever conceive such absurdities to have been sanctioned by God. 
+  - Just as the superstitions in vogue among the Arabs were absurd, as the Qur'an stresses, likewise many other nations of the world follow even now irrational dietary restrictions, and believe that food and drink become polluted merely by the touch of some other people.
