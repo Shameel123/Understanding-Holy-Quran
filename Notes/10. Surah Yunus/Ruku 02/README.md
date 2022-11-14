@@ -47,6 +47,7 @@
 - `Tell them (O Muhammad):`
   - `'It is not for me to change it of my accord. I only follow what is revealed to me. Were I to disobey my Lord, I fear the chastisement of an Awesome Day.`
 
+*Date: 08-11-2022*
 ## Ayat 16
 
 - `Tell them:`
