@@ -56,3 +56,32 @@
 - `neither gloom nor humiliation shall cover their faces.`
 - `They are the people of the Garden and in it they shall abide.`
 
+## Ayat 27
+
+- `Those who do evil deeds, the recompense of an evil deed is its like,`
+- `and humiliation shall spread over them and there will be none to protect them from Allah.`
+- `Darkness will cover their faces as though they were veiled with the dark blackness of night.`
+- `These are the people of the Fire and in it they shall abide.`
+
+## Ayat 28
+
+- `And the Day when We shall muster them all together,`
+- `We shall say to those who associated others with Allah in His divinity:`
+  - `'Keep to your places - you and those whom you associated with Allah.'`
+- `Then We shall remove the veil of foreignness separating them.`
+  - Tahfim-ul-Quran:
+    - Some commentators are of the opinion that the original words of the text mean this: We will cut off every kind of connection and relation between them so that they are not able to show any concern for one another.
+    - But these meanings are opposed to the Arabic usage, according to which they mean: We will distinguish them from one another, or We will cause a distinction among them. That is why these have been translated like this: Then We will separate, one from the other. That is, the mushriks and their deities shall stand in front of each other and recognize their mutual and respective positions. The mushriks shall come to know the whole truth about those whom they worshiped and their deities will learn everything about their worshipers.
+- `Those whom they had associated with Allah will say.`
+  - `'It was not us that you worshipped.`
+
+
+## Ayat 29
+
+- `Allah's witness suffices between you and us that (even if you worshipped us)`
+- `we were totally unaware of your worshipping us.`
+
+## Ayat 30
+
+- `Thereupon everyone shall taste the recompense of his past deeds.`
+- `All shall be sent back to Allah, their true Lord, and then all the falsehoods they had fabricated will have forsaken them.`
