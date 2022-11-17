@@ -1,4 +1,4 @@
-*Date: 15-11-2022*
+*Date: 16-11-2022*
 
 **Ayat 31 - 40**
 
@@ -45,6 +45,7 @@
     - Tahfim-ul-Quran:
       - This question has been posed to bring home to them the folly of the doctrine of shirk. The argument is this: When Allah originates the creation and has the power to bring it back again, where do the gods you have set up come in? If you think a little, you yourselves will realize that there is no room for anyone in the universe for any claim or title to your reverence or worship or servitude.
 
+*Date: 17-11-2022*
 
 ## Ayat 35
 
@@ -56,3 +57,38 @@
 - `Say:`
   - `'It is Allah alone Who guides to the truth.'`
 - `Then, who is more worthy to be followed - He Who guides to the truth, or he who cannot find the right way unless others guide him to it? What is wrong with you? How ill do you judge!`
+
+
+## Ayat 36
+
+- `Most of them only follow conjectures;`
+  - Tahfim-ul-Quran:
+    - It means that neither the authors of religion, nor philosophers, nor law makers based their opinions on knowledge but on mere guesswork and conjecture.
+    - Likewise, those who followed these religious or worldly leaders did it on the mere assumption that their authors were great people; therefore they must be right. That was why their forefathers and the common people followed them.
+- `and surely conjecture can be no substitute for truth.`
+- `Allah is well aware of whatever they do.`
+
+
+## Ayat 37
+
+- `And this Qur'an is such that it could not be composed by any unless it be revealed from Allah.`
+- `It is a confirmation of the revelation made before it and a detailed exposition of the Book.`
+- `Beyond doubt it is from the Lord of the universe.`
+
+## Ayat 38
+
+- `Do they say that the Messenger has himself composed the Qur'an?`
+- `Say:`
+  - `'In that case bring forth just one surah like it and call on all whom you can, except Allah, to help you if you are truthful.`
+
+## Ayat 39
+
+- `In fact they arbitrarily rejected as false whatever they failed to comprehend and whose final sequel was not apparent to them.`
+- `Likewise had their predecessors rejected the truth, declaring it falsehood.`
+- `Do observe, then, what was the end of the wrong-doers.`
+
+
+## Ayat 40
+
+- `Of those some will believe and others will not.`
+- `Your Lord knows best the mischief-makers.`
