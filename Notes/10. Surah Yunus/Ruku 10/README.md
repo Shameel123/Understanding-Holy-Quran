@@ -116,3 +116,8 @@
 - `What are they waiting for except to witness the repetition of the days of calamity that their predecessors witnessed?`
 - `Tell them:`
   - `'Wait; I too am waiting with you.`
+
+## Ayat 103
+
+- `Then, (when Allah's wrath falls upon the wicked) We save our Messengers and also those who believe.`
+- `It is incumbent on Us to deliver the believers.`
