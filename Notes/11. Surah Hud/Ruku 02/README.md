@@ -97,3 +97,59 @@ Tahfim-ul-Quran:
     - How could such persons close their eyes to such overwhelming testimony as this and join their voice with those of the unbelievers?
 - `The Fire shall be the promised resort of the groups that disbelieve.`
 - `So be in no doubt about it for this indeed is the truth from your Lord although most people do not believe.`
+
+
+## Ayat 18
+
+- `And who is a greater wrong-doer than he who invents a lie against Allah?`
+  - Tahfim-ul-Quran:
+    - To invent a lie against God consists of stating that beings other than God also have a share with God in His godhead, that like God they are also entitled to be served and worshiped by God’s creatures.
+    - Inventing a lie against God also consists of stating that God is not concerned with providing guidance to His creatures, that He did not raise Prophets for that purpose, and that He rather left men free to behave as they pleased. Inventing a lie against God also consists of stating that God created human beings by way of jest and sport and that He will not have them render an account to Him, and that He will not requite them for their deeds.
+- `Such men will be set forth before their Lord and witnesses will say:` 
+- `'These are the ones who lied against their Lord. Lo! Allah's curse be upon the wrong-doers;`
+  - Tahfim-ul-Quran:
+    - Such a proclamation would be made on the Day of Judgment.
+
+## Ayat 19
+
+- `upon those`
+  - Tahfim-ul-Quran:
+    - This is a parenthetical statement. That is, that God’s curse will be proclaimed in the Hereafter against those who are guilty of the crimes mentioned.
+- `who bar people from the way of Allah,`
+- `and seek in it crookedness,`
+- `and disbelieve in the Hereafter.`
+
+## Ayat 20
+
+- `They had no power to frustrate Allah's design in the earth,`
+- `nor did they have any protectors against Allah.`
+- `Their chastisement will be doubled.`
+- `They were unable to hear, nor could they see.`
+
+## Ayat 21
+
+- `They caused utter loss to themselves,`
+- `and all that they had invented failed them.`
+  - Tahfim-ul-Quarn:
+    - All their conjectures regarding God, the universe and their own selves will prove to be absolutely baseless in the next life. 
+    - Similarly, the notions they entertained about the help and support they would receive from those they considered to be either their deities, or their intercessors with God, or their patrons will prove to be false.
+    - Likewise, it will become obvious that all their notions about the Afterlife were utterly untrue.
+
+## Ayat 22
+
+- `Doubtlessly, they shall be the greatest losers in the Hereafter.`
+
+## Ayat 23
+
+- `As for those who believed and acted righteously and dedicated themselves totally to their Lord -`
+- `they are the people of Paradise, and there they shall abide forever.`
+
+## Ayat 24
+
+- `The example of the two parties is that one is blind and deaf, and the other capable of seeing and hearing.`
+- `Can the two be equals?`
+- `Will you, then, not heed?'`
+
+- Tahfim-ul-Quran:
+  - Can the attitude and ultimate end of both these types of people be the same?
+  - Obviously, he who fails to see the right way and ignores the instruction of the guide who directs him to the right way will necessarily stumble and meet with some terrible mishap. However, he who perceives the right way and follows the instructions of his guide will reach his destination, and reach it safely.
