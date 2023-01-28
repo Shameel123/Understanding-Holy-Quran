@@ -105,4 +105,4 @@
   - In another tradition, related by Aishah: **“Asaf and Nailah were human beings.”**
   - There are also traditions to the same effect about Lat, Munat and Uzza.
   - So much so that according to some traditions of the mushriks, Lat and Uzza were the beloved ones of Allah who used to pass His winter with Lat and summer with Uzza.
-  - But Allah is absolutely free from such absurd things they attribute to Him.
+  - **But Allah is absolutely free from such absurd things they attribute to Him.**
