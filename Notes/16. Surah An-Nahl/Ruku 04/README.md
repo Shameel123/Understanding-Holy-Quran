@@ -96,3 +96,4 @@
 ## Ayat 34
 
 - `The evil consequences of their misdeeds overtook them and what they mocked at overwhelmed them.`
+
