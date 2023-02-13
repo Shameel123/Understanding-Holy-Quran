@@ -67,3 +67,29 @@
 - Tahfim-ul-Quran:
   - This verse deals with the case of those Muslims who were being persecuted with cruelty and were being subjected to unbearable torments to force them to give up their faith. They are being told that if at any time they are forced to utter words of disbelief to save their lives, when in fact in their hearts they are secure against disbelief, they will be pardoned. On the other hand, if they accepted unbelief from the core of their hearts, they shall not escape the torment of Allah even if they succeed in saving their lives.
 
+
+*Date: 12-02-2023*
+
+## Ayat 107
+
+- `That is because they love the life of this world more than the Hereafter;`
+- `and Allah does not guide those who are ungrateful to Allah for His favours.`
+
+## Ayat 108
+
+- `They are the ones upon whose hearts and hearing and eyes Allah has set a seal.`
+- `They are utterly steeped in heedlessness.`
+
+## Ayat 109
+
+- `No doubt they shall be losers in the Hereafter.`
+  
+- Tahfim-ul-Quran:
+  - These words apply to those people who gave up their faith, when they felt that they could not bear hardships of the right way and so they again joined their unbelieving, mushrik people.
+
+## Ayat 110
+
+- `And surely your Lord will be Most Forgiving and Most Merciful towards those who left their homes after they were persecuted, and who thereafter struggled hard and remained constant.`
+
+- Tahfim-ul-Quran:
+  - They were those believers who migrated to Habashah.
