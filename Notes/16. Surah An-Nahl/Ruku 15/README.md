@@ -68,3 +68,7 @@
     - Here a question arises. Which of the two Surahs, Al-Anaam or An-Nahl, was first revealed? This is because in (verse 118), a reference has been made to (verse 146 of Al-Anaam). Also in (verse 119 of Al-Anaam): “And why should you not eat that thing over which Allah’s name has been mentioned, when He has already given you a detail of those things that have been declared to be unlawful for you except in case of extremity?” a reference has been made to (verse 115 of An- Nahl).
 - `In so doing We did not wrong them;`
 - `it is they who wronged themselves.`
+
+## Ayat 119
+
+- `But to those who commit evil out of ignorance and then repent and amend their ways, thereafter your Lord will be Much Forgiving, Most Merciful.`
