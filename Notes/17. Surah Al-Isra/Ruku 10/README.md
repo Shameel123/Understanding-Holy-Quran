@@ -1,6 +1,6 @@
 *Date: 19-02-2023*
 
-**Ayat 85 - 92**
+**Ayat 85 - 93**
 
 - `They ask you about "the spirit".`
 - `Say:`
