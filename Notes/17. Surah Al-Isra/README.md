@@ -1,0 +1,1 @@
+Alhamdulillah, Completed this Surah on the 27th Rajab.
