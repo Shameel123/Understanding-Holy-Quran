@@ -123,3 +123,8 @@
     - This has been called a cursed tree because it is not given to people to eat as a mercy from Allah but as a symbol of His curse so that the accursed people should eat it and get more sore, for this will, so to speak, burn in their bellies like the boiling water.
 - `but as a trial for people.`
 - `We go about warning them, but each warning leads them to greater transgression.`
+
+- Tahfim-ul-Quran:
+  - That is, We showed you such things during the Miraj so that they should have the first hand knowledge of the reality from a truthful and honest man like you and be warned by it to the right way.
+  - They, however, began to make fun of you, though We had already warned them through you that their evil ways would force them to eat of the Az-zaqqum.
+  - Instead of this they began to scoff at you, saying, just consider the logic of this man. On the one hand, he says that there is an awful fire burning in Hell and, on the other, he says that trees are growing in it.
