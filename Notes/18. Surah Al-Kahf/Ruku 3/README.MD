@@ -89,7 +89,8 @@
 - `and still others will say:`
   - `"They were seven, and their dog, the eighth."`
 - Tahfim-ul-Quran:
-  - This shows that about three hundred years after this event, at the time of the revelation of the Quran, different stories had become current among the Christians about the sleepers of the cave, but generally these stories had no authentic source behind them. This was because that was not the age of the press in which authentic books might have been published. Therefore naturally the stories of events were carried from place to place by means of oral traditions, and with the passage of time many tales of fiction got mixed up with the real story.
+  - This shows that about three hundred years after this event, at the time of the revelation of the Quran, different stories had become current among the Christians about the sleepers of the cave, but generally these stories had no authentic source behind them.
+  - This was because that was not the age of the press in which authentic books might have been published. Therefore naturally the stories of events were carried from place to place by means of oral traditions, and with the passage of time many tales of fiction got mixed up with the real story.
 - `Say:`
   - `"My Lord knows their number best.`
   - `Only a few know their correct number.`
