@@ -50,4 +50,5 @@
 
 - `And then the Record of their deeds shall be placed before them and you will see the guilty full of fear for what it contains, and will say:`
   - `"Woe to us! What a Record this is! It leaves nothing, big or small, but encompasses it."`
-- `They will find their deeds confronting them. Your Lord wrongs no one.`
+- `They will find their deeds confronting them.`
+- **`Your Lord wrongs no one.`**
