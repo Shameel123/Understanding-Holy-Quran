@@ -1,5 +1,5 @@
 
-*Date: 26-03-2023*
+*Date: 27-03-2023 and 28-03-2023*
 
 **Ayat  116 - 128**
 
@@ -166,8 +166,8 @@
 - Tahfim-ul-Quran:
   - “For them”: means people of Makkah.
 
-- `Did they1 not find any guidance in the fact that We destroyed many nations in whose ruined dwelling-places they now walk about?`
-- `Surely there are many Signs in them for people endowed with wisdom.2`
+- `Did they not find any guidance in the fact that We destroyed many nations in whose ruined dwelling-places they now walk about?`
+- `Surely there are many Signs in them for people endowed with wisdom.`
 
 - Tahfim-ul-Quran:
   - That is, in this lesson of history and in the observation of the archaeological remains and in this experience of mankind.
