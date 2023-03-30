@@ -1,81 +1,111 @@
 *Date: 30-03-2023*
 
-**Ayat  34 - 38**
+**Ayat  39 - 48**
 
-## Ayat 34
-
-- `For every people We have laid down a ritual of sacrifice (- although the purpose of the ritual is the same -)`
-- `that they pronounce the name of Allah over the cattle He has provided them.`
-- `Your Lord is One God;`
-- `so submit yourselves to Him alone.`
-- `And give, (O Prophet), glad tidings to those that humble themselves (before Allah),`
+## Ayat 39
 
 - Tahfim-ul-Quran:
-  - This verse implies two things.
-    - (1) Sacrifice has been an essential part of the worship of One Allah in all the revealed religions. In order to inculcate Tauhid, Allah prohibited sacrifice for anyone other than Himself.
-      - This was in keeping with the other prohibitions which were made for others than Allah.
-      - For instance, prostration before anyone other than Allah, making vows for others than Allah, visiting holy places others than those prescribed by Allah, fasting in the name of others than of Allah, etc., were all prohibited.
+  - This (verse 39) is the first verse of the Quran in which permission to fight was given in the month of Zil-Hajj in the first year after Hijrah according to our research.
+  - Then the command to fight was given in (verse 190, 191, 193, 216 and 244 of Surah Al-Baqarah) in Rajab or Shaban of A.H. 2.
 
-## Ayat 35
+- `Permission (to fight) has been granted to those for they have been wronged.`
+- **`Verily Allah has the power to help them:`**
+  
+- Tahfim-ul-Quran:
+  - **“Allah surely has Power over giving them victory”**:
+    - this assurance was urgently needed by the persecuted Muslims whose fighting strength at that time was very meager, not even a thousand including all the migrants and the Muslims of Al-Madinah. 
+    - On the other hand, the fighting strength of the Quraish by themselves was much greater. Besides, they had all the other mushrik clans of Arabia at their back and were joined later by the Jews as well. Therefore, this assurance was most opportune and the challenge to the disbelievers was very significant, for it meant to say that they were not fighting against a small number of the Muslims but against Allah. Therefore, **“You are welcome to fight if you dare”**.
 
-- `whose hearts shiver whenever Allah is mentioned,`
-- `who patiently bear whatever affliction comes to them,`
-- `who establish Prayer,`
-- `and who spend (for good purposes) out of what We have provided them.`
+## Ayat 40
 
 - Tahfim-ul-Quran:
-  - It means that righteous people spend their lawful provisions in the way of Allah to meet their own and their dependents’ lawful needs, to help their relatives, neighbors and other needy people, on public works and propagation of the word of Allah.
-  - It does not include expenditure in unlawful ways for unlawful purposes. The Quranic term lnfaq implies neither over spending nor being miserly and stingy, but spending one’s wealth on himself and others according to his means and status in society.
+    - The mention of their expulsion from their homes in (verse 40) is a clear proof that this portion of Surah Al-Hajj was revealed at Al-Madinah.
 
-## Ayat 36
-
-- `We have appointed sacrificial camels`
-  - Tahfim-ul-Quran:
-    - Seven persons can become partners in the sacrifice of one camel and likewise in the sacrifice of one cow and the like, as enjoined by the Prophet (peace be upon him) in a tradition reported by Jabir bin Abdullah in the collection of Hadith by Muslim.
-- `among the symbols of (devotion to) Allah.`
-- `There is much good in them for you.`
-  - Tahfim-ul-Quran:
-    - That is, you should sacrifice animals because you get many benefits from them to show your gratitude to Allah, the Giver, and also to acknowledge His Supremacy and Sovereignty.
-- `So make them stand (at the time of sacrifice)`
-  - Tahfim-ul-Quran:
-    - “Mention the name of Allah over them” implies that animals should be slaughtered by pronouncing the name of Allah over them, because without that their flesh would be unlawful to eat.
-    - This shows that in the Islamic Law there is no conception of slaughtering an animal without pronouncing the name of Allah over it. According to traditions, there are different wordings for pronouncing the name of Allah over the animals at the time of their slaughter. Some of these are:
-    - (1) **Bismillahi Allahu Akbar; Allahumma minka wa laka:**
-         - In the name of Allah, Allah is most Great! O Allah, this is Thine and is presented to Thee.
-    - (2) **Allahu Akbar- La ilaha ill-Allahu; Allahumma minka wa laka:**   
-      - Allah is most Great: There is no god but Allah: O Allah, this is Thine and is presented to Thee.
-    - (3) **Inni wajjahtu wajhiya lillazi fatar-as-sama wati wal-arda, hanif-an-wa ma ana min-al-mushrikin. Inns Salati wa nusuki wa mahyaya wa mamati lillahi Rabb-il-alamin. La sharika lahu wa bi-zalika umirtu wa ana min-al-Muslimin. A llahumma minks wa laka.**
-      - I have turned my face sincerely towards the Being Who created the heavens and the earth, and I am not from among the idolatrous people. My Salat and my rites of worship and my life and my death are all for Allah, the Lord of the universe, Who has no partner with Him. This is what I have been enjoined and I am the first to surrender to Him. O Allah! This is Thine, and is presented to Thee.
-- `and pronounce the name of Allah over them,`
-- `and when they fall down on their sides(after they are slaughtered),`
-- `eat and also feed them who do not ask and those who ask.`
-- `Thus have We subjected these animals that you may give thanks.`
-
-## Ayat 37
-
-- **`Neither their flesh reaches Allah nor their blood; it is your piety that reaches Him.`**
-  - Tahfim-ul-Quran:
-    - This prescribes a very important condition for the sacrifice made in the worship of Allah.
-    - A sacrifice is acceptable to Allah only if it is accompanied by piety and sincerity.
-    - Though sacrifice is a symbol of Allah, yet it has been made plain that it is accepted only if it is accompanied by piety, saying: **“Neither their meat that reaches Allah nor their blood, but what reaches Him is the piety from you”.**
-    - This was also meant to condemn the ritual of the days of ignorance, when the Arabs took the flesh to the Kabah and smeared its walls with the blood of the sacrificed animal.
-- `He has subjected these animals (to you) that you may magnify Allah for the guidance He has bestowed upon you.`
-- `Give glad tidings, (O Prophet), to those who do good.`
-  - Tahfim-ul-Quran:
-    - **“That you may glorify Allah”** at the time of sacrifice verbally also in order to acknowledge that the animals really belong to Allah and to no one else.
-    - One of the sentences uttered at the time of sacrifice is **Allahumma minka wa laka (O Allah, this animal is Thine and is presented to Thee)**.
-
-## Ayat 38
-
-- `Surely`
-- `Allah defends those who believe.`
-- `Certainly Allah has no love for the perfidious, the thankless.`
+- `those who were unjustly expelled from their homes`
+- `for no other reason than their saying: `**`"Allah is Our Lord."`**
+- `If Allah were not to repel some through others, monasteries and churches and synagogues and mosques wherein the name of Allah is much mentioned, would certainly have been pulled down.`
+- `Allah will most certainly help those who will help Him.`
+- `Verily Allah is Immensely Strong, Overwhelmingly Mighty.`
 
 - Tahfim-ul-Quran:
-  - From here the address for the first time prepares the Muslims for Jihad.
-  - In order to understand this, we should keep in view the preceding portion (verses 19-24) in which the ideological conflict between the two parties (believers and disbelievers) and the result thereof have been described.
-  - This naturally serves as a prelude to the armed conflict between the two parties.
-  - That is why in (verses 26- 37) the immediate causes which necessitated war have been stated to serve as an introduction and justification for war with the disbelievers of Makkah.
-  - After the migration to Al-Madinah, when the first Hajj season approached, it naturally brought along with it anguish and anger both for the Muhajirs and the Ansar, who had been debarred froth visiting Makkah and performing Hajj, That is why, in this passage (verse 26-37), the rituals and the objects of Hajj have been described to bring home to the disbelievers that they had no right to debar anyone from Hajj.
-  - On the other hand, the Muslims are being prepared to fight not with the intention of wreaking vengeance but for the sake of reform. At the same time sacrifice on the occasion of Hajj has been prescribed as a permanent rite to enable them (and the Muslims of the whole world) to commemorate Hajj and the rites connected with it, so that they might refrain from wreaking vengeance on the people of Makkah for the persecution to which they had been subjected.
-  - They have, therefore, been enjoined to fight to bring about better conditions and not to take revenge on their persecutors.
+    - In order to have an idea of the severe persecution of the Muslims, a few instances of this are cited.
+      1. Suhaib Rumi was deprived of everything, when he was about to migrate to Al-Madinah. When he reached there, he had nothing with him except the clothes he was wearing. Though he had earned all that through his own labors, he was deprived of everything by the disbelievers of Makkah.
+      2. When Abu Salmah was about to leave Makkah with his wife and a suckling child, his in laws forcibly separated his wife from him, and then the people of his own family took away the child from them. Thus the poor woman had to pass one whole year in sorrow and grief. After a year, she secured the child somehow and journeyed from Makkah to Al-Madinah with it all alone on a dangerous route.
+
+## Ayat 41
+
+- `(Allah will certainly help) those`
+  - Tahfim-ul-Quran:
+    - Those who help Allah are the people who invite mankind to Tauhid and exert their utmost to establish the true faith and righteousness.
+      - For further explanation see (E.N. 50 of Surah Aal-Imran).
+- `who, were We to bestow authority on them in the land,`
+- `will establish Prayers, render Zakah, enjoin good, and forbid evil.`
+  - Tahfim-ul-Quran:
+    - “If We give them authority”: In this one sentence, the real aim of the Islamic State and the characteristics of those who conduct its affairs have been stated concisely but comprehensively.
+    - Those who help Allah and deserve His succor behave righteously, establish Salat, make arrangements for the collection of Zakat and use their power and authority to propagate good and eradicate evil.
+- `The end of all matters rests with Allah.`
+  - Tahfim-ul-Quran:
+    - That is, it is Allah Who decides whom to give power in the land and when.
+    - This is meant to remove the misunderstanding of the proud and arrogant people who think that the destiny of the land and its dwellers is in their hands, and there is none to depose them from power.
+    - But Allah dethrones the most haughty ruler in supernatural ways and gives power to the most humble in order to show that He is All-Powerful, All-Mighty.
+
+## Ayat 42
+
+
+- `(O Prophet), if they give the lie to you,`
+- `then before them the people of 'Ad and Thamud, also gave the lie (to the Prophets),`
+
+- In Arabic Ayah, "Qoum-e-Nooh" is also mentioned
+
+## Ayat 43
+
+- `and so too did the people of Abraham and the people of Lot;`
+
+## Ayat 44
+
+- `and so did the dwellers of Midian,`
+- `and Moses too was branded a liar.`
+- `Initially I granted respite to the unbelievers for a while and then seized them.`
+- `How dreadful was My punishment!`
+
+- Tahfim-ul-Quran:
+    - The instances of some peoples who rejected their Prophets have been cited to impress that they were given respite to reform themselves before they were punished.
+    - Therefore: O people of Makkah, you should not be deluded by the delay in your punishment. When the term of respite comes to an end, you shall also be punished like the former people, if you do not mend your ways in the meantime.
+ 
+
+## Ayat 45
+
+- `How many towns have We destroyed because their people were steeped in iniquity:1`
+- `so they lie fallen down upon their turrets!`
+- `How many wells lie deserted;`
+- `and how many towering palaces lie in ruins!`
+
+- Tahfim-ul-Quran:
+    - In Arabic a well is synonymous with a habitation.
+    - Thus “many a wells” means “many a habitation has been destroyed”.
+
+## Ayat 46
+
+- `Have they not journeyed in the land that their hearts might understand and their ears might listen?`
+- `For indeed it is not the eyes that are blinded;`
+- `it is rather the hearts in the breasts that are rendered blind.`
+
+- Tahfim-ul-Quran:
+  - The words “blinded are the hearts” have been used in the metaphorical and not in the literal sense.
+  - Since the heart is regarded as the center of emotions, feelings and of mental and moral qualities, these words have been used to imply that their obduracy has inhibited them from feeling and acting rationally.
+
+## Ayat 47
+
+- `They ask you to hasten the punishment.`
+  - Tahfim-ul-Quran:
+    - This refers to the oft-repeated challenge by the disbelievers: Well, if you are a true prophet, why does not that chastisement come with which you have been threatening us, for we have been rejecting your claim of being a true Prophet of Allah.
+- **`Allah shall most certainly not fail His promise;`**
+- **`but a Day with your Lord is as a thousand years of your reckoning.`**
+  - Tahfim-ul-Quran:
+    - That is, the decisions of Allah do not follow your time and calendar, nor do the consequences of your wrong attitudes appear immediately after the deeds. Therefore it will be very foolish for the part of a people to argue that the threat of punishment was empty just because a decade or a century had passed since they had adopted a wicked attitude and conduct with impurity.
+
+## Ayat 48
+
+- `How many towns did I respite at first though they were steeped in iniquity,`
+- `and then I seized them!`
+- `To Me are all destined to return.`
