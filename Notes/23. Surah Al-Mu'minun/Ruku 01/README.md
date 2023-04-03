@@ -1,6 +1,6 @@
 *Date: 01-04-2023*
 
-**Ayat  01 - 21**
+**Ayat  01 - 22**
 
 ## Ayat 01
 
@@ -189,7 +189,7 @@
 
 ## Ayat 20
 
-- `And We also produced the tree which springs forth from Mount Sinai,1 containing oil and sauce for those that eat.`
+- `And We also produced the tree which springs forth from Mount Sinai, containing oil and sauce for those that eat.`
 
 
 - Tahfim-ul-Quran:
