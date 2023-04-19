@@ -104,3 +104,8 @@
 
 - `See what specious arguments they put forth before you:`
 - `they are so strayed that they will not find their way to anything sound.`
+
+
+- Tahfim-ul-Quran:
+  - As these objections were frivolous and meaningless like others, the Quran has ignored them, saying: Your objections are irrelevant, unreasonable and void of sense. You bring no sound argument to prove your doctrine of shirk, or to refute the doctrine of Tauhid put forward by him, whereas the Messenger gives such proofs of the doctrine of Tauhid that you cannot refute them except by saying: He is bewitched.
+  - The same is true of the doctrine of the life-after-death and of the moral system of the Quran, which has produced men of high character. You cannot deny these things; you reject them, saying, He is a human being like us, etc.
