@@ -184,3 +184,152 @@
 
 ## Ayat 48
 
+- `Theirs shall be wide-eyed maidens`
+  - Tahfim-ul-Quran:
+    - Probably, these will be the girls who died before attaining the age of discretion in the world, and whose parents did not deserve to enter Paradise. This can be said on the basis of analogy that just as the boys similarly placed will be appointed for the service of the dwellers of Paradise, and they will ever remain boys, so will the girls be made the houris and they will ever remain young and beautiful. The correct knowledge, however, is with Allah.
+- `with bashful, restrained glances,`
+  - Tahfim-ul-Quran:
+    - “Restraining their looks”: Restraining their looks from everyone except their husbands.
+
+## Ayat 49
+
+- `so delicate as the hidden peel under an egg's shell.`
+ 
+- Tahfim-ul-Quran:
+  - The words of the text actually mean this: As if they were the hidden or well preserved eggs.
+  - The commentators have given different interpretations of these words, but the correct commentary is the one which Umm Salamah has related from the Prophet (peace be upon him). She says that when she asked the Prophet (peace be upon him), the meaning of this verse, he said: Their delicacy and elegance and tenderness will be like the thin skin which is there between the shell of the egg and its fleshy part. (Ibn Jarir).
+
+## Ayat 50
+
+- `Then some of them will turn to others, and will ask each other.`
+
+## Ayat 51
+
+- `One of them will say:`
+  - `“I had a companion in the world`
+
+## Ayat 52
+
+- `who used to say: �`
+  - `Are you also one of those who confirm the Truth (of life after death)?`
+
+## Ayat 53
+
+- `After we are dead and have become all dust and bones shall we still be requited?'`
+
+- Tahfim-ul-Quran:
+  - That is, were you also one of those credulous people who put their faith in an irrational and impossible thing like life-after-death.
+
+## Ayat 54
+
+- `He will say: �`
+  - `Do you wish to know where he is now?'`
+
+## Ayat 55
+
+- `Then he will look downwards, and will see him in the depths of Hell.`
+
+## Ayat 56
+
+- `He will say to him: �`
+  - `By Allah, you almost ruined me.`
+
+## Ayat 57
+
+- `But for Allah's favour, I should be one of those who have been mustered here.`
+
+- Tahfim-ul-Quran:
+  - This shows how powerful will be man’s hearing, seeing and speaking powers in the Hereafter. Sitting in Paradise he bends his head a little and is able to see a person, who is undergoing torment thousands of miles away in Hell, without the agency of a television set. Then, they not only just see each other, but also commune with each other directly without the medium of the telephone or radio and they speak and hear each other over vast distances.
+
+## Ayat 58
+
+- `So, are we not going to die,`
+
+## Ayat 59
+
+- `except for our first death?`
+- `And shall we suffer no chastisement?'”`
+
+- Tahfim-ul-Quran:
+  - The style clearly shows that while speaking to his friend in Hell, the dweller of Paradise suddenly starts talking to himself. He speaks these three sentences in a way as if he found himself in a state much better than that he ever expected and imagined for himself, and now being beside himself with wonder and joy he is engaged in a sort of soliloquy. In such a state the speaker does not speak to an addressee, nor the questions he asks are meant to find out something from somebody, but in this state the man’s own feelings find expression through his tongue. The dweller of Paradise, while speaking to the dweller of Hell, suddenly starts feeling how he has been favored by good fortune: now there is neither death nor any torment: all troubles and distresses have come to an end and he has been blessed with immortality. Under this very feeling he exclaims: Well are we not to die any other than our first death? Are we not to be punished?
+
+## Ayat 60
+
+- `Surely this is the supreme triumph.`
+
+## Ayat 61
+
+- `For the like of it should the workers work.`
+
+## Ayat 62
+
+- `Is this a better hospitality or the tree of al-Zaqqum?`
+
+- Tahfim-ul-Quran:
+  - Zaqqum is a tree of the cactus species found in Tihamah. It is bitter in taste, obnoxious in smell and sheds a milk like juice when cut or broken.
+
+## Ayat 63
+
+- `We have made this tree a trial for the wrong-doers.`
+
+- Tahfim-ul-Quran:
+  - That is, on hearing this, the disbelievers get a new opportunity to taunt the Quran and mock the Prophet (peace be upon him). They ridicule it saying: Listen another strange thing: A tree will grow in the blazing fire of Hell.
+
+## Ayat 64
+
+- `It is a tree that grows in the nethermost part of Hell.`
+
+## Ayat 65
+
+- `Its spathes are like the heads of satans.`
+
+- Tahfim-ul-Quran:
+  - Nobody should have the misunderstanding that since no one has seen the head of Satan, it was no use likening the buds of zaqqum to it. 
+  - This is, in fact, an imaginative kind of the simile, and is employed in the literature of every language.
+  - For example, in order to give an idea of the rare beauty of a woman, it is said she is a fairy, and in order to describe her ugliness, it is said that she is a hag or a demon.
+  - Likewise, a pious-looking person is described as an angel and a dreadful-looking person as a devil.
+
+## Ayat 66
+
+- `(The people of Hell) will surely eat of it, filling their bellies with it.`
+
+
+## Ayat 67
+
+- `Then on top of it they will have a brew of boiling water.`
+
+## Ayat 68
+
+- `Then their return will be to the same blazing Hell.`
+
+- Tahfim-ul-Quran:
+  - This shows that when the dwellers of Hell will be in distress due to hunger and thirst, they will be driven to the side where there would be the zaqqum trees and the springs of boiling water. When they will have eaten and drunk, they will be brought back to Hell.
+
+I am a little confused here because previously we studied that the people of paradise won't feel hunger. Does that not apply to the people of hell?
+
+## Ayat 69
+
+- `These are the ones who found their fathers steeped in error,`
+
+## Ayat 70
+
+- `and they are running in their footsteps.`
+
+## Ayat 71
+
+- `Before them a multitude of people of olden times had erred,`
+
+## Ayat 72
+
+- `and We had sent among them Messengers to warn them.`
+
+## Ayat 73
+
+- `Observe, then, what was the end of those that had been warned,`
+
+## Ayat 74
+
+- `except for the chosen servants of Allah?`
+
+- Tahfim-ul-Quran:
+  - That is, they never used their own common sense to see whether the way their forefathers had been following was right or wrong; they just blindly adopted the way that they found others following.
