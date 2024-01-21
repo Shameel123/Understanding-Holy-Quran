@@ -176,3 +176,56 @@
   - From this one should not understand that this good news was given to him immediately following his prayer. In the Quran itself, at another place, this saying of the Prophet Abraham (peace be upon him) has been related: All praise be to Allah who has given me sons like Ishmael and Isaac in my old age. (Surah Ibrahim, Ayat 39).
   - This proves that there was an interval of many years between the prayer and this good news.
   - The Bible says that at the birth of the Prophet Ishmael, the Prophet Abraham was 86 years old (Gen. 16: 16) and at the birth of the Prophet Isaac a hundred years. (Gen. 21: 5).
+
+*Date: 21-01-2024*
+
+## Ayat 102
+
+- `and when he was old enough to go about and work with him, (one day) Abraham said to him:`
+  - `“My son, I see in my dream that I am slaughtering you.`
+    - Tahfim-ul-Quran:
+      - One should note that the Prophet Abraham (peace be upon him) had dreamed that he was sacrificing his son and not that he had sacrificed him. Although at that time he understood the dream to mean that he should sacrifice his son and on that very basis, he became ready to sacrifice him, with a cool mind, yet the fine point that Allah had in view in making him see the dream has been explained by Himself in (verse 105) below.
+  - `So consider (and tell me) what you think.”`
+    - Tahfim-ul-Quran:
+      - The object of asking this of the son was not that he would carry out Allah’s command only if he agreed, otherwise not, but the Prophet Abraham (peace be upon him), in fact, wanted to find out how righteous, in actual reality, was his child for whom he had prayed to Allah. If the son himself was found to be ready to lay down his life for the sake of Allah’s approval and pleasure, it would mean that the prayer had been fully granted, and the son was not his offspring in the natural way only but was morally and spiritually also a true son.
+- `He said:`
+  - `“Do as you are bidden.`
+    - Tahfim-ul-Quran:
+      - The words clearly tell that the son had not taken the dream of his Prophet father to be a mere dream but a command from Allah. Had it not been a command actually, it was necessary that Allah should have explicitly or implicitly stated that the son of Abraham (peace be upon him) had mistaken it for a command. But the whole context is without any such allusion. On this very basis, there is the Islamic belief that the dream of the Prophets is never a mere dream, it is also a kind of revelation. Obviously, if a thing, which could become such a fundamental principle in the divine Shariah, had not been based on reality, but had been a mere misunderstanding, it was not possible that Allah should not have refuted it. It is impossible for the one who believes the Quran to be Allah’s Word, to accept that such an error and omission could emanate from Allah also.
+- `You will find me, if Allah so wills, among the steadfast.”`
+
+## Ayat 103
+
+- `When both surrendered (to Allah's command) and Abraham flung the son down on his forehead,`
+
+- Tahfim-ul-Quran:
+  - That is, the Prophet Abraham (peace be upon him) did not make his son lie flat on his back but made him lie prostrate lest while slaughtering him the sight of his face should arouse compassion and love and make him shaky. Therefore, he wanted to use the knife from under the throat.
+
+## Ayat 104
+
+- `We cried out:`
+  - `“O Abraham,`
+
+- Tahfim-ul-Quran:
+  - One section of the grammarians says that here “and” has been use to mean “then”; thus, the sentence would be: When the two had submitted themselves (to Allah) and Abraham had flung his son down on his brow, then We called out.
+  - But another section of them says that here the answer to the word “when” has been omitted and left for the listener to fill; for it was better to leave such an indescribable thing to the imagination instead of expressing it in words. When Allah might have seen that the old father who had gotten a son after long earnest prayers, has become ready to sacrifice him only for His pleasure and approval; and the son also had became ready to get slaughtered, His infinite Mercy might have been aroused at the sight, and the Master might have felt great love for the father and son. All this can only be imagined. No words would ever describe the scene adequately.
+
+## Ayat 105
+
+- `you have indeed fulfilled your dream.`
+  - Tahfim-ul-Quran:
+    - That is, “We did not make you see in the dream that you had actually slaughtered your son and he had died, but that you were slaughtering him. That vision you have fulfilled. Now, it is not Our will to take the life of your child. The actual object of the vision has been fulfilled by your submission and preparation to sacrifice him for Our sake.”
+- `Thus do We reward the good-doers.”`
+  - Tahfim-ul-Quran:
+    - That is, We do not subject the people who adopt the righteous way to trials in order to involve them in trouble and distress and affliction just for the sake of it, but these trials are meant to bring out their excellencies and to exalt them to high ranks. And then We deliver them safe and sound from the dilemma in which We place them for the sake of the trial. Thus, your willingness and preparation to sacrifice yow son is enough to entitle you to be exalted to the rank that could be attained only by the one who would actually have slaughtered his son for Our approval and pleasure. Thus, We have saved the life of yow child as well as exalted you to this high rank.
+
+
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
+- Tahfim-ul-Quran:
