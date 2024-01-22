@@ -219,13 +219,53 @@
   - Tahfim-ul-Quran:
     - That is, We do not subject the people who adopt the righteous way to trials in order to involve them in trouble and distress and affliction just for the sake of it, but these trials are meant to bring out their excellencies and to exalt them to high ranks. And then We deliver them safe and sound from the dilemma in which We place them for the sake of the trial. Thus, your willingness and preparation to sacrifice yow son is enough to entitle you to be exalted to the rank that could be attained only by the one who would actually have slaughtered his son for Our approval and pleasure. Thus, We have saved the life of yow child as well as exalted you to this high rank.
 
+## Ayat 106
+
+- `This was indeed a plain trial.`
 
 - Tahfim-ul-Quran:
+  - That is, the object was not to get your son slaughtered through you but to test you to see that you did not hold anything of the world dearer than Us.
+
+## Ayat 107
+
+- `And We ransomed him with a mighty sacrifice,`
+
 - Tahfim-ul-Quran:
+  - “A great sacrifice”: A ram, as mentioned in the Bible and the Islamic traditions, that Allah’s angel presented at the time before the Prophet Abraham (peace be upon him), so that he should sacrifice it instead of his son.
+    - This has been called “a great sacrifice” because it was to serve as a ransom from a faithful servant like Abraham for a patient and obedient son like Ishmael, and Allah made it a means of fulfilling the intention of an unprecedented sacrifice.
+  - Another reason for calling it “a great sacrifice” is that Allah made it a tradition till the Day of Resurrection that all the believers should offer animal sacrifice on the same date in the entire world so as to keep fresh the memory of the great and unique event signifying faithfulness and devotion.
+
+
+## Ayat 108
+
+- `and We preserved for him a good name among posterity.`
+
+
+## Ayat 109
+
+- **`Peace be upon Abraham.`**
+
+## Ayat 110
+
+- `Thus do We reward the good-doers.`
+
+## Ayat 111
+
+- `Surely he was one of Our believing servants.`
+
+
+## Ayat 112
+
+- `And We gave him the good news of Isaac,`
+- `a Prophet and among the righteous ones.`
+  
+
 - Tahfim-ul-Quran:
-- Tahfim-ul-Quran:
-- Tahfim-ul-Quran:
-- Tahfim-ul-Quran:
-- Tahfim-ul-Quran:
-- Tahfim-ul-Quran:
-- Tahfim-ul-Quran:
+  - Here, the question arises: Who was the son whom the Prophet Abraham had gotten ready to offer as a sacrifice, and who had willingly offered himself to be slaughtered as a sacrifice? The first answer to this question is given by the Bible; and it is this:
+    - And it came to pass after these things, that God did tempt Abraham, and said unto him, Abraham: . . . Take now thy son thine only son Isaac, whom thou lovest, and get thee into the land of Moriah; and offer him there for a burnt offering upon one of the mountains which I will tell thee of.” (Gen. 22: 1-2).
+
+
+## Ayat 113
+
+- `And We blessed him and Isaac.`
+- `Among the offspring of the two some did good and some plainly wronged themselves.`
