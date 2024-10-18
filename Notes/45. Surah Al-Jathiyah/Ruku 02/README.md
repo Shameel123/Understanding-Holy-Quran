@@ -2,7 +2,7 @@ _Date: 08-10-2024_
 
 **Ayat 12 - 21**
 
-## Ayat 
+## Ayat 12
 
 - `Allah it is Who has subjected the sea to you so that ships may sail upon it at His bidding`
   - Tahfim-ul-Quran:
